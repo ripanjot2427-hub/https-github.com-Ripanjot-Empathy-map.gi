@@ -1,2 +1,3 @@
 Empathy map 
+and 
 brainstorming 
